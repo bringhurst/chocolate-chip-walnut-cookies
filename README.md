@@ -26,8 +26,8 @@ Note: For chocolate chips, **make sure it's actually cacao and NOT palm oil**. I
 | Freshly grated nutmeg, optional | A chef's pinch |
 | Eggs, cold | 100 g (about 2 large) |
 | All-purpose flour | 283 g |
-| 72% chocolate chips | 250 g |
-| 45% chocolate chips | 175 g |
+| 72% (important, see note above) chocolate chips | 250 g |
+| 45% (important, see note above) chocolate chips | 175 g |
 | Raw walnut pieces | 240 g |
 
 ## Instructions
