@@ -28,7 +28,7 @@ Note: For chocolate chips, **make sure it's actually cacao and NOT palm oil**. I
 | All-purpose flour | 283 g |
 | 72% (important, see note above) chocolate chips | 250 g |
 | 45% (important, see note above) chocolate chips | 175 g |
-| Raw walnut pieces | 240 g |
+| Raw walnut pieces (pecans would be fine too) | 240 g |
 
 ## Instructions
 
