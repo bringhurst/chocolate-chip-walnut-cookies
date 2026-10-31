@@ -12,6 +12,8 @@
 
 ## Ingredients
 
+Note: For chocolate chips, **make sure it's actually cacao and NOT palm oil**. I used `Good & Gather Signature Semi Sweet Chocolate Chips` in the black bag with `45% Cocoa` printed on it from Target (most chocolate chip bags from Good & Gather will NOT work right). I also used `Ghiradelli Premium Baking 72% Cacao Dark Chocolate Chips`.
+
 | Ingredient | Amount |
 | --- | ---: |
 | Unsalted butter, softened | 113 g |
@@ -24,11 +26,9 @@
 | Freshly grated nutmeg, optional | A chef's pinch |
 | Eggs, cold | 100 g (about 2 large) |
 | All-purpose flour | 283 g |
-| (Ghirardelli) 72% chocolate chips | 250 g |
-| Signature Semi Sweet Chocolate Chips - 12oz - Good & Gather45% chocolate chips | 175 g |
+| 72% chocolate chips | 250 g |
+| 45% chocolate chips | 175 g |
 | Raw walnut pieces | 240 g |
-
-Note: For chocolate chips, I used `Signature Semi Sweet Chocolate Chips - 12oz - Good & Gather` in the black bag. Make sure it has "45% Cocoa" printed on the bag. I also used `GHIRARDELLI Premium Baking 72% Cacao Dark Chocolate Chips - 10oz`. Again, make sure it's actually cacao and not palm oil or whatever.
 
 ## Instructions
 
