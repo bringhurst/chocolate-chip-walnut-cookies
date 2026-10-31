@@ -17,7 +17,7 @@ Note: For chocolate chips, **make sure it's actually cacao and NOT palm oil**. I
 | Ingredient | Amount |
 | --- | ---: |
 | Unsalted butter, softened | 113 g |
-| Light brown sugar | 113 g |
+| Light brown sugar (important, measure correctly, or the cookies will spread too much) | 113 g |
 | White sugar (important, measure correctly, or the cookies will spread too much) | 100 g |
 | Vanilla extract | 15 g |
 | Salt | 6 g |
