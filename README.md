@@ -12,7 +12,7 @@
 
 ## Ingredients
 
-Note: For chocolate chips, **make sure it's actually cacao and NOT palm oil**. I used `Good & Gather Signature Semi Sweet Chocolate Chips` in the black bag with `45% Cocoa` printed on it from Target (most chocolate chip bags from Good & Gather will NOT work right). I also used `Ghiradelli Premium Baking 72% Cacao Dark Chocolate Chips`.
+Note: For chocolate chips, **make sure it's actually cacao and NOT palm oil**. I used `Good & Gather Signature Semi Sweet Chocolate Chips` in the black bag with `45% Cocoa` printed on it from Target (most chocolate chip bags from Good & Gather will NOT work right). I also used `Ghiradelli Premium Baking 72% Cacao Dark Chocolate Chips`. If you deviate from this, the rest of the recipe will need to be rebalanced to work right.
 
 | Ingredient | Amount |
 | --- | ---: |
